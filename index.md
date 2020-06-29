@@ -10,3 +10,4 @@ Der Doktor ist die zentrale Hauptfigur in Doctor Who. Da der Begriff darin wenig
 * Fisch mit Vanillesoße
 
 > Lache laut. Lauf schnell. ...
+> Ich bin ein Verrückter mit 'ner Notrufzelle
