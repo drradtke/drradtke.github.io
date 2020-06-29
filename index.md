@@ -8,3 +8,5 @@ Der Doktor ist die zentrale Hauptfigur in Doctor Who. Da der Begriff darin wenig
 * wahren Name unbekannt
 * Reist mit Begleitung
 * Fisch mit Vanillesoße
+
+> Lache laut. Lauf schnell. ...
